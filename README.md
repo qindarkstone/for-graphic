@@ -23,3 +23,5 @@
 ![mmexport1689126753958](https://github.com/qindarkstone/-/assets/81075299/2034199d-9964-464d-8186-a08ec73ce2c1)
 ![-7661b25acedafe1c](https://github.com/qindarkstone/-/assets/81075299/1eb4ae5e-e92d-426b-9f62-25fc094c3fce)
 ![img-1687247311421265af4be37d9e62ecd4eb2169a56c7fd](https://github.com/qindarkstone/-/assets/81075299/cbb16f45-4b84-4d68-ac6c-6bd953fbedd4)
+![image](https://github.com/qindarkstone/for-graphic/assets/81075299/badfb113-7f4c-4251-874b-f92b36ac89ae)
+![image](https://github.com/qindarkstone/for-graphic/assets/81075299/0a08f8f4-298a-4b88-a7af-0e85f5c87a4e)
